@@ -1,2 +1,1 @@
-https://www.figma.com/make/xw4rZzXYIzVdgaKbmJMVLl/SaaS-Eco-Optimize-BI-mockup?p=f&t=t78rlbEwjiur1MB1-0
-https://www.figma.com/make/xw4rZzXYIzVdgaKbmJMVLl/SaaS-Eco-Optimize-BI-mockup?t=t78rlbEwjiur1MB1-1
+https://www.figma.com/make/xw4rZzXYIzVdgaKbmJMVLl/SaaS-Eco-Optimize-BI-mockup?p=f&t=TRqTuj8xvAHQIiv1-0&fullscreen=1
